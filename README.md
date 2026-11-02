@@ -1,1 +1,0 @@
-# NS-ORBIT-MIND
